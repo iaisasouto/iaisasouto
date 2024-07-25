@@ -1,0 +1,4 @@
+- 👋 Hello, I'm @iaisasouto!
+- 👀 I'm interested in learning here
+- 📫 Talk to me on my Instagram!
+- 😊 Pronouns: she/her
